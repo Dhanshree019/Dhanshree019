@@ -13,7 +13,7 @@
 
 - 💬 Ask me about **android and python.**
 
-- 📫 How to reach me **dhanshree.apatangrao@gmail.com**
+- 📫 How to reach me **dhanshree.patangrao@gmail.com**
 
 - ⚡ Fun fact **I am very free and funny**
 
