@@ -1,3 +1,5 @@
+<p><img align="center" src="https://user-images.githubusercontent.com/55869458/131816296-81cadebf-b1da-4e20-9fb0-38efbaf1a6f2.gif"/></p>
+
 <h1 align="center">Hey 👋, I'm Dhanshree Vinayak Patangrao</h1>
 <h3 align="center">A girl living with a bucket of big dreams.</h3>
 
